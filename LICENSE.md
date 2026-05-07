@@ -1,4 +1,4 @@
-
+math for brainrots ultimate Scripts is the best math for brainrots Script, featuring silent aim and god mode. Safe and powerful for all your needs.
 
 
 
